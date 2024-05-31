@@ -1,2 +1,2 @@
 # Jamie-TinyPixel.github.io
-[purplelight.me](purplelight.me)
+[purplelight.me](https://purplelight.me)
